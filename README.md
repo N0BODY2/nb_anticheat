@@ -1,4 +1,4 @@
-** [Buy NB Anticheat](https://store.nlmt.cc/category/resources) **
+**[Buy NB Anticheat](https://store.nlmt.cc/category/resources)**
 
 Try the most reliable FiveM [Anticheat](https://store.nlmt.cc/category/resources) for 7 days free.
 
